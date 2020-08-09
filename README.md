@@ -1,3 +1,3 @@
 # covid-19-india
 
-[visit application](bit.ly/3fOk0Ri)
+[visit application](https://bit.ly/3fOk0Ri)
